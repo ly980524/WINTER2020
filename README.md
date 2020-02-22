@@ -59,3 +59,11 @@ Josh Park (12:30pm)
 Junghwan Park (12:30pm)   
 Krystal Xu (12:30pm)  
 
+#### Team 7: FBI Most Wanted
+
+Leon Huaming Ng (12:30pm)  
+Lium Lin (3:30pm)  
+Ziling Chen (3:30pm)  
+Jiarui Zhou (3:30pm)  
+Hope Safranek (3:30pm)   
+
